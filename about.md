@@ -6,4 +6,4 @@ Gained practical experience in graphic design, web design and development from c
 
 I look forward to the chance to cross disciplines with innovative ideas and rationale. Delve into my portfolio website to get a gist of the mediums I have explored.
 
-Download my [résumé](http://www.aditibhatia.com/img/aditi_bhatia.pdf).
+Download my [résumé](http://projects.aditibhatia.com/aditi_bhatia.pdf).
