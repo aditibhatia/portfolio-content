@@ -4,6 +4,10 @@ A New Media enthusiast with expertise in consumer culture and advertising theori
 
 Gained practical experience in graphic design, web design and development from concept to delivery, basic animation, video-graphing, and video editing through coursework in New Media Design Certification from Centennial College and industry work experience. My hobby is to probe into fine arts. 
 
-I look forward to the chance to cross disciplines with innovative ideas and rationale. Delve into my portfolio website to get a gist of the mediums I have explored.
+I look forward to the chance to cross disciplines with innovative ideas and rationale. Delve into my portfolio to get a gist of the mediums I have explored.
 
 Download my [résumé](http://projects.aditibhatia.com/aditi_bhatia.pdf).
+
+The source code for this web app [is published on Github](https://github.com/aditibhatia/portfolio) under [Apache 2.0 License](http://www.apache.org/licenses/LICENSE-2.0.html).
+
+
