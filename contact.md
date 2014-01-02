@@ -1,5 +1,5 @@
 ## Contact Me
 
-### [![LinkedIn](https://dlc1-s.licdn.com/sites/default/files/InBug-60px-R.png) Connect on LinkedIn](http://ca.linkedin.com/in/aditibhatia)
+### [![LinkedIn](http://lh6.googleusercontent.com/-UhgilO1hrtM/UsSvKkAFWOI/AAAAAAAACZc/9NESlAPfpEM/w100/linkedin.png) Connect on LinkedIn](http://ca.linkedin.com/in/aditibhatia)
 
-### email: aditi.bhatia@utoronto.ca
+### ![](http://lh5.googleusercontent.com/-JJ-R8vnHn5s/UsSvK0wCU9I/AAAAAAAACZg/yIOG75JcDS8/w100/mail.png) aditi.bhatia@utoronto.ca
