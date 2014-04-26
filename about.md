@@ -1,6 +1,6 @@
 ## About Me
 
-A New Media enthusiast with expertise in consumer culture and advertising theories from the undergraduate studies at University of Toronto, majoring in New Media Studies and minoring in Media Studies and Studio Art.
+A New Media enthusiast with expertise in consumer culture and advertising theories from the undergraduate studies at University of Toronto, majoring in New Media Studies and minoring in Media Studies and Studio Art. A candidate for Master's in Digital Media at Ryerson University for Fall 2014. 
 
 I have gained practical experience in graphic design, web design and development from concept to delivery. Well versed in basic animation, video-graphing, and video editing with New Media Design Certification from Centennial College and industry work experience. My hobby is to probe into fine arts.
 
