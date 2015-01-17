@@ -1,5 +1,5 @@
 ## Contact Me
 
-### [![LinkedIn](http://lh6.googleusercontent.com/-UhgilO1hrtM/UsSvKkAFWOI/AAAAAAAACZc/9NESlAPfpEM/w100/linkedin.png) Connect on LinkedIn](http://ca.linkedin.com/in/aditibhatia)
+### [![LinkedIn](https://lh5.googleusercontent.com/-bxCuMU-rczs/VLrQH9gGpdI/AAAAAAAADPM/Be6AqVHk1hw/w100/linkedin.png) Connect on LinkedIn](http://ca.linkedin.com/in/aditibhatia)
 
-### ![](http://lh5.googleusercontent.com/-JJ-R8vnHn5s/UsSvK0wCU9I/AAAAAAAACZg/yIOG75JcDS8/w100/mail.png) aditi.bhatia@ryerson.ca
+### ![](https://lh6.googleusercontent.com/-F3ZEDLh4XJk/VLrQH7T51EI/AAAAAAAADPQ/JnxRb_Z_DOk/w100/mail.png) aditi.bhatia@ryerson.ca
