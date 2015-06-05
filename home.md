@@ -1,6 +1,6 @@
 ## Welcome. I am Aditi Bhatia.
 
-A User Experience (UX) designer with peculiar insight into conceptual, behavioral and usability elements of interaction design with a goal to develop human friendly designs. In addition, I have an in-depth acumen of the digital media culture with analytical vision on societal effects of digital and social media.
+User experience specialist with a peculiar insight into conceptual, behavioural and usability elements of interaction design. I have a deep understanding of UX methodologies and tools. I am experienced with usability testing procedures. Moreover, I have an in-depth acumen of the digital media culture with analytical vision on its societal effects.
 
 Delve into my portfolio to get a gist of the mediums I have explored.
 
