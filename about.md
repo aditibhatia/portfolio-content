@@ -4,7 +4,8 @@ Key Interests: Digital Strategy| Communications | User Experience | Social Media
 
 Intensive digital media and communications education prepares me well for a stratigic communications role.
 
-Certificate, Digital Strategy & Communications Management, University of Toronto – School of Continuing Education (Present)
+### Certificate, Digital Strategy & Communications Management, University of Toronto – School of Continuing Education (Present)
+
 Focus on developing strategies and initiatives that resonate with the audience and build engagement and community. Learning to integrate strategic approach with hands-on experience using platforms and tools within the rapidly changing digital and social media landscape.
 
 Master of Digital Media, Yeates School of Graduate Studies, Ryerson University, Toronto (2015)
