@@ -1,8 +1,8 @@
 ## About Me
 
-Key Interests: Digital Strategy| Communications | User Experience | Social Media | Digital Marketing
+Key Interests: Digital Strategy| Communications | User Experience | Design | Social Media | Digital Marketing
 
-Intensive digital media and communications education prepares me well for a stratigic communications role.
+Intensive digital media and communications education prepares me well for a strategic communications role.
 
 #### Certificate, Digital Strategy & Communications Management
 ###### University of Toronto – School of Continuing Education (Present)
