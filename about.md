@@ -1,6 +1,6 @@
 ## About Me
 
-Key Interests: Digital Strategy| Communications | User Experience | Design | Social Media | Digital Marketing
+Key Interests: Digital Strategy | User Experience | Design | Social Media | Communications | Research
 
 Intensive digital media and communications education prepares me well for a strategic communications role.
 
