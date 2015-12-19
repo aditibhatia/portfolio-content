@@ -6,7 +6,7 @@ Education in digital media, user experience and interaction design prepares me w
 #### Yeates School of Graduate Studies, Ryerson University, Toronto - 2015
 The Master of Digital program intersects three key areas of digital media: art & design, technology, and business & entrepreneurship. I have gained knowledge pertinent to digital landscape in each of these areas that helps strategize solutions from innovative angles.
 
-### Bachelors of Arts Honours, New Media Studies 
+### Bachelor of Arts Honours, New Media Studies 
 #### University of Toronto - 2014
 Majoring in New Media Studies has prepared me for careers in Web communication and new media industries. Along with an overview of theoretical and critical understandings of media: political, economic, social and cultural contexts in which mediated images and texts are produced, distributed, and consumed.
 
