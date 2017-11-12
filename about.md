@@ -11,7 +11,7 @@ The Master of Digital program intersects three key areas of digital media: art &
 Majoring in New Media Studies has prepared me for careers in Web communication and new media industries. Along with an overview of theoretical and critical understandings of media: political, economic, social and cultural contexts in which mediated images and texts are produced, distributed, and consumed.
 
 ### Certificate, Digital Strategy & Communications Management 
-#### University of Toronto – School of Continuing Education - Present
+#### University of Toronto – School of Continuing Education - In progress
 Focus on developing strategies and initiatives that resonate with the audience and build engagement and community. Learning to integrate strategic approach with hands-on experience using platforms and tools within the rapidly changing digital and social media landscape.
 
 ### Ontario College Certification, New Media Design with Honours 
