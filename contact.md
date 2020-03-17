@@ -6,6 +6,6 @@
 
 ### [![Twitter](https://lh3.googleusercontent.com/-LrwMswfKmkM/ViQ1EknGoJI/AAAAAAAAD5Y/AnYSBzuTVy4/s100-Ic42/twitter.png) Connect on Twitter](https://twitter.com/aditibhatia29)
 
-### ![](https://lh6.googleusercontent.com/-F3ZEDLh4XJk/VLrQH7T51EI/AAAAAAAADPQ/JnxRb_Z_DOk/w100/mail.png) aditi.bhatia@ryerson.ca
+### ![](https://lh6.googleusercontent.com/-F3ZEDLh4XJk/VLrQH7T51EI/AAAAAAAADPQ/JnxRb_Z_DOk/w100/mail.png) aditi.bhatia@mail.utoronto.ca
 
 
